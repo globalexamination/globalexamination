@@ -17,11 +17,11 @@
 <img src="https://files.catbox.moe/z2fou4.png">
 </p>
 
-[<img src="https://files.catbox.moe/9vcs3d.png">](https://rentry.co/soph) 
-[<img src="https://files.catbox.moe/9ewve7.png">](https://rentry.co/naiad) 
+[<img src="https://files.catbox.moe/pbanjy.png">](https://rentry.co/soph) 
+[<img src="https://files.catbox.moe/0897op.png">](https://rentry.co/naiad) 
 </p>
 
-[<img src="https://files.catbox.moe/qj8i6u.png">](https://yoojoonghyuk.atabook.org/) [<img src="https://files.catbox.moe/3f4vlr.png">](https://rentry.co/fries)
+[<img src="https://files.catbox.moe/dzppnw.png">](https://yoojoonghyuk.atabook.org/) [<img src="https://files.catbox.moe/yfazwg.png">](https://rentry.co/fries)
 </p>
 
 <img src="https://files.catbox.moe/vyhmsk.png">
